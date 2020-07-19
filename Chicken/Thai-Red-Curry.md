@@ -1,22 +1,22 @@
 # Thai Red Curry
 
 ## Ingredients
-• 3+ tablespoon Thai red curry paste 
-• 14 oz coconut milk
-
-• 1 lb boneless chicken breasts or thighs, sliced into thin bite-size pieces 
-• 1/4 cup chicken broth
-
-• 2 tablespoon fish sauce
-• 2 teaspoon brown sugar
-• 1 tablespoon lime juice
-• 1 cup red and/or green bell pepper, cubed 
-• 1 cup carrots, sliced
-• 1/2 cup onion, cubed
-• 1/2 cup canned bamboo shoots 
-• 4 lime leaves
-
-• 12 Thai basil leaves
+• 3+ tablespoon Thai red curry paste  
+• 14 oz coconut milk  
+  
+• 1 lb boneless chicken breasts or thighs, sliced into thin bite-size pieces  
+• 1/4 cup chicken broth  
+  
+• 2 tablespoon fish sauce  
+• 2 teaspoon brown sugar  
+• 1 tablespoon lime juice  
+• 1 cup red and/or green bell pepper, cubed  
+• 1 cup carrots, sliced  
+• 1/2 cup onion, cubed  
+• 1/2 cup canned bamboo shoots  
+• 4 lime leaves  
+  
+• 12 Thai basil leaves  
 
 ## Steps
 1. Set instant pot setting to saute and stir in the following, cook about 1-2 mins:  

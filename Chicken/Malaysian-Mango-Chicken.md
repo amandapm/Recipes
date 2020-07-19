@@ -1,28 +1,28 @@
 # Malaysian Mango Chicken
 
 ## Ingredients
-• 8 oz skinless and boneless chicken breast or thigh, cut into bite sized pieces 
-• 1/2 teaspoon sugar
-• 1/2 teaspoon salt
-• 2 dash black pepper
-• 1 teaspoon cornstarch
-
-• 2 - 3 tablespoons tomato puree
-• 2 tablespoon chili sauce
-• 1 tablespoon oyster sauce
-• 1 tablespoon Worcestershire sauce 
-• 1 tablespoon A1 steak sauce
-• 1 teaspoon honey
-• 2 - 3 tablespoons pineapple juice
-• 1/2 - 1 teaspoon apple cider vinegar 
-• Sugar and salt to taste
-
-• 1/2 onion, quartered
-• 1/2 red bell pepper, cut into chunks
-• 1/2 green bell pepper, slivered into 1-inch lengths
-
-• 2 tablespoons oil
-• 1/2 medium ripe green mango, peeled, pitted, and slivered
+• 8 oz skinless and boneless chicken breast or thigh, cut into bite sized pieces  
+• 1/2 teaspoon sugar  
+• 1/2 teaspoon salt  
+• 2 dash black pepper  
+• 1 teaspoon cornstarch  
+  
+• 2 - 3 tablespoons tomato puree  
+• 2 tablespoon chili sauce  
+• 1 tablespoon oyster sauce  
+• 1 tablespoon Worcestershire sauce  
+• 1 tablespoon A1 steak sauce  
+• 1 teaspoon honey  
+• 2 - 3 tablespoons pineapple juice  
+• 1/2 - 1 teaspoon apple cider vinegar  
+• Sugar and salt to taste  
+  
+• 1/2 onion, quartered  
+• 1/2 red bell pepper, cut into chunks  
+• 1/2 green bell pepper, slivered into 1-inch lengths  
+  
+• 2 tablespoons oil  
+• 1/2 medium ripe green mango, peeled, pitted, and slivered  
 
 ## Steps
 1. Marinate 8 oz chicken chunks in the following:  
