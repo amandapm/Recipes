@@ -13,7 +13,7 @@
 * 1/2 small red onion, finely chopped
 
 * 1/3 cup freshly squeezed lemon juice (from 4 lemons) 
-* 1 lemon, thinly sliced into half moons
+* 1 lemon, thinly sliced into half moons  
 * Zest of 1 lemon
 * Pinch of crushed red pepper
 * 1 cup pasta water
@@ -34,7 +34,7 @@
 &nbsp;&nbsp;&nbsp;&nbsp; * 1/2 small red onion, finely chopped  
 5. Add to skillet:  
 &nbsp;&nbsp;&nbsp;&nbsp; * 1/3 cup lemon juice (from 4 lemons)  
-&nbsp;&nbsp;&nbsp;&nbsp; * 1 lemon, thinly slice into half moons 
+&nbsp;&nbsp;&nbsp;&nbsp; * 1 lemon, thinly slice into half moons  
 &nbsp;&nbsp;&nbsp;&nbsp; * Zest of 1 lemon  
 &nbsp;&nbsp;&nbsp;&nbsp; * Pinch of crushed red pepper  
 &nbsp;&nbsp;&nbsp;&nbsp; * 1/4 cup reserved pasta water  
