@@ -1,22 +1,21 @@
 # Chicken Tikka Masala
 
 ## Ingredients
-
-* 2 tablespoons butter 
-* 1 onion, thinly sliced
-
-* 1 tablespoon grated ginger (or 1/2 teaspoon ground ginger) 
-* 1 tablespoon minced garlic
-* 2 tablespoons garam masala
-* 1 teaspoon ground cumin
-* 1/4 - 1/2 teaspoon cayenne pepper 
-* 1 teaspoon salt
-
-* 2.5 lbs boneless skinless chicken thighs or breasts, cut into 2 inch pieces 
-* 15 oz can tomato sauce
-* 1/2 up heavy cream
-
-* 2 tablespoon cilantro (optional)
+• 2 tablespoons butter  
+• 1 onion, thinly sliced  
+  
+• 1 tablespoon grated ginger (or 1/2 teaspoon ground ginger)  
+• 1 tablespoon minced garlic  
+• 2 tablespoons garam masala  
+• 1 teaspoon ground cumin  
+• 1/4 - 1/2 teaspoon cayenne pepper  
+• 1 teaspoon salt  
+  
+• 2.5 lbs boneless skinless chicken thighs or breasts, cut into 2 inch pieces  
+• 15 oz can tomato sauce  
+• 1/2 up heavy cream  
+  
+• 2 tablespoon cilantro (optional)  
 
 ## Steps
 
