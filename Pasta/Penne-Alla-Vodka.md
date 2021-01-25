@@ -2,7 +2,7 @@
 
 ## Ingredients
 • 16 oz penne (or alternative pasta)  
-• 28 oz tomato puree or marinara sauce
+• 28 oz tomato puree or marinara sauce  
 • 1 tablespoon olive oil  
 • 1 small onion, minced  
 • 6 cloves garlic, minced  
